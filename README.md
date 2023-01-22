@@ -1,1 +1,0 @@
-# autoHelp.io
